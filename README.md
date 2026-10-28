@@ -1,6 +1,6 @@
 Founder of [Escacs](https://escacs.net). Creator of [DosLenguas](https://doslenguas.escacs.net). Currently finishing my A Levels
 
-Checkout my [YouTube](https://www.youtube.com/@eepmel), [X](https://x.com/meleeps), [SoundCloud](https://soundcloud.com/eepymel), or [Instagram](https://www.instagram.com/eepmel/) I guess
+Checkout my [X](https://x.com/meleeps), [SoundCloud](https://soundcloud.com/eepymel), or [Instagram](https://www.instagram.com/eepmel/) I guess
 
 ## Current Projects
 
