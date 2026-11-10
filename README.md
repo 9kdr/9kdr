@@ -1,6 +1,6 @@
 Founder of [Escacs](https://escacs.net). Creator of [DosLenguas](https://doslenguas.escacs.net). Currently finishing my A Levels
 
-Checkout my [X](https://x.com/meleeps), [SoundCloud](https://soundcloud.com/eepymel), or [Instagram](https://www.instagram.com/eepmel/)
+Checkout my [X](https://x.com/melfromescacs), [SoundCloud](https://soundcloud.com/eepymel), or [Instagram](https://www.instagram.com/eepmel/)
 
 Known as eepymel, 9kdr, Mega, eepy, and meleeps on platforms I'm on.
 
